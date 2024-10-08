@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @uyen15
 - 👀 I’m interested in puxy cat
-- 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning dat a 
+- 💞️ I’m looking to collaborate on ?
 - 📫 How to reach me money
-- 😄 Pronouns: ...
+- 😄 Pronouns: love to rich
 - ⚡ Fun fact: very fat
   
 <!---
